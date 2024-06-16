@@ -1,1 +1,1 @@
-# Repozytorium-zdalne-2024
+Łukasz Dudicz
